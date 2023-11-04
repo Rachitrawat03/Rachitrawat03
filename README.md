@@ -1,4 +1,4 @@
-[![MasterHead](https://media.tenor.com/lvLaG5hPCncAAAAd/data-analysis.gif)
+
 <h1 align="center">Hi 👋, I'm Rachit Rawat</h1>
 <h3 align="center">Data Enthusiast | Analytics Wizard | Insight Curator</h3>
 
