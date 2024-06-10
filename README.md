@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Power BI, Statistics, Python and MySQL**
 
-- 📫 How to reach me **rachitrawat2120@gmail.com**
+- 📫 How to reach me **rachitrawatwork@gmail.com**
 
 - 📄 Know about my experiences [https://1drv.ms/w/s!ArVuSdEZ9r3ighk5qrC1tM_wK6p4?e=Eq3DU4](https://1drv.ms/w/s!ArVuSdEZ9r3ighk5qrC1tM_wK6p4?e=Eq3DU4)
 
